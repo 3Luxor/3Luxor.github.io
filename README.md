@@ -1,1 +1,1 @@
-# LuxyHub.github.io
+# 3Luxor.github.io
